@@ -26,9 +26,7 @@ Solving problems through numbers and code gives me a excited feeling I haven't r
 ### 4A. 
 https://store.steampowered.com/app/3082730/HYPERyuki_Snowboard_Syndicate/
 
-This game hasn't been released yet, but it really reminds me of this old PS2 snowboarding game I used to play with my dad called SSX Tricky. There's been a few game announcements this year that I've been more excited for than in a long time.
-
-What I'm actually playing right now though are gacha games, mostly mobile. I got really into those during COVID and they pretty solidly dug their claws into me. 
+This game hasn't been released yet, but it really reminds me of this old PS2 snowboarding game I used to play with my dad called SSX Tricky. There's been a few game announcements this year that I've been more excited for than in a long time. What I'm actually playing right now though are gacha games, mostly mobile. I got really into those during COVID and they pretty solidly dug their claws into me. 
 ---
 
 *Thank you for sharing! Your responses help me get to know you and hopefully make the course better!*
